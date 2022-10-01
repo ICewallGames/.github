@@ -1,1 +1,1 @@
-# .github
+Welcome to ICewallGames. At the moment we have no proggress on upcoming titles we can share, but do not worry! We are working on an upcoming game and will be ready to share it with everyone in the upcoming weeks.
